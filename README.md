@@ -4,6 +4,5 @@
 - 📫 You can reach out to me on 7978152641/shgaurav42.gs@gmail.com or via LinkedIn (https://www.linkedin.com/in/gaurav-sharma-92a847177/)
 - 👀 I’m into Guitar,Travel,Snooker,Chess,Astronomy and few more stuff.
   Let's turn data into knowledge together!
-![image](https://github.com/GouravSharma15/TheAnalyst./assets/152855019/489b8fa7-18ac-42cb-a9ff-9908caf2643c)
 
 
