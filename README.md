@@ -5,3 +5,4 @@
 - 👀 I’m into Guitar,Travel,Snooker,Chess,Astronomy and few more stuff.
   Let's turn data into knowledge together!
 
+![image](https://github.com/GouravSharma15/TheAnalyst./assets/152855019/6daca47b-b1ae-4f0a-9b1e-47838dd3d33f)
